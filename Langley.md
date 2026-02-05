@@ -9,4 +9,4 @@
 Honourable mentions:
 - Burger King
 - Tim Hortons
--Dairy Queen
+- Dairy Queen
