@@ -1,0 +1,5 @@
+- Sopra Sotto
+- Vij's
+- Anh & Chi
+- Vera's Burger Shack (might have vegan options)
+- House of Dosa
